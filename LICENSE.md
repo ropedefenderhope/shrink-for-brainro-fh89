@@ -1,4 +1,4 @@
-
+Experience shrink for brainrots like never before with shrink for brainrots updated Script, the #1 Script. Includes auto-sell and no clip for
 
 
 
